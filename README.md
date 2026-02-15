@@ -16,3 +16,4 @@ i pushed hard but able to run only 4 km
 # myself 
 i want to become an entrerenure 
 but i love coding and mathematics
+i am fine 
